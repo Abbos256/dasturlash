@@ -1,1 +1,1 @@
-# dasturlash
+# dasturlash asoslari
